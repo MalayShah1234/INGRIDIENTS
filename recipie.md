@@ -1,0 +1,1 @@
+First we have to cut the sides of the bread . Then we have to put butter on it . Then we have to place all the ingridients in slices . The ingridients I have mentioned in the ingridients.md file and finally , we have to close the Sandwhich.
